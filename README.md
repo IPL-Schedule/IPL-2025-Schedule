@@ -78,7 +78,7 @@ To ensure you don’t miss any action, keep an eye on the IPL website and app fo
 
 ### **TATA IPL 2025 Schedule PDF Download**
 
-Click below to get the full Schedule PDF download version to have it offlin:
+Click below to get the full Schedule PDF download version to have it offline:
 
 [**IPL 2025 Schedule PDF Download**](https://iplschedule.net/)
 
